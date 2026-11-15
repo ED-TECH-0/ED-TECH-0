@@ -4,7 +4,7 @@
 
 **Systems, cybersecurity and AI engineer** · Creator of Sydra OS
 
-[Email](mailto:vishal.0731.v@gmail.com) · [Instagram](https://instagram.com/0731_vengence) · [Sydra OS](https://github.com/ED-TECH-0/sydra-os)
+[Email](mailto:vishal.0731.v@gmail.com) · [Instagram](https://instagram.com/0731_vengence) · [Sydra OS](https://github.com/ED-TECH-0/sydra-os) · [Portfolio](https://ed-tech-0.github.io)
 
 </div>
 
